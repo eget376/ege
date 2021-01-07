@@ -1,0 +1,2 @@
+# ege
+ege herkeze iyilikl
